@@ -1,4 +1,7 @@
 
+![Snake animation](https://github.com/GanNingPC/GanNingPC/blob/output/github-contribution-grid-snake.svg)
+
+
 # 👋 Olá, eu sou Paulo César
 
 Estudante de TI | Desenvolvedor Java & Python | Focado em projetos práticos e aprendizado contínuo 🚀

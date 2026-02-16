@@ -39,7 +39,7 @@ Busco oportunidades de **estágio ou trabalho remoto** para aplicar e expandir m
 ## 📫 Contato
 
 📧 E-mail: poro0370@gmail.com  
-🔗 LinkedIn: [https://linkedin.com/in/seulinkedin](www.linkedin.com/in/paulo-césar-oliveira-de-freitas-2a9726355)  
+🔗 LinkedIn: [https://linkedin.com/in/paulo-césar-oliveira-de-freitas-2a9726355](www.linkedin.com/in/paulo-césar-oliveira-de-freitas-2a9726355)  
 
 ---
 
